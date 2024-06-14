@@ -12,3 +12,7 @@ Missing Data: Some entries might lack crucial information like release dates, ca
 
 SOMETHING INTERESTING:
 The diversity of content across different regions. This reveals insights into regional preferences and content strategies.
+
+WEEK 15 ASSIGNMENT
+https://docs.google.com/document/d/1c8RxM17dEn4ly_bbl92x-u1QfCO3j_x8mEVduSg3h2g/edit?usp=sharing
+
